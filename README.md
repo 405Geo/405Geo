@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @405Geo
-- 👀 I’m interested to tinker stuff 
+- 👀 I’m interested in tinkering stuff 
 - 🌱 I’m currently learning to optimise stuff
 - 💞️ I’m looking to collaborate here
 - 📫 How to reach me..Comming Soon!
